@@ -8,7 +8,7 @@ display some of my projects.
 ### **Contact Info**
   Phone: 480-322-3490<br>
   Email: Michael.bsobieski.1@gmail.com<br>
-  [LinkedIn](www.linkedin.com/in/michael-sobieski)
+  LinkedIn: www.linkedin.com/in/michael-sobieski
 
 
 
